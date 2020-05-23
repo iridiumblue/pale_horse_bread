@@ -20,37 +20,37 @@ Warm the starter up by placing a jar of it in a bowl of tap water at 100 or so d
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p3.gif" alt="p3" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p3.gif" alt="p3" style="zoom:50%;" />
 
 The starter will expand and start to become foamy.  I used a black marker here to show the level rise from 20 minutes of warming :
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p2.gif" alt="p2" style="align:left; zoom:50%;" /><img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p4.gif" alt="p4" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p2.gif" alt="p2" style="align:left; zoom:50%;" /><img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p4.gif" alt="p4" style="padding-left:10px; zoom:50%;" />
 
 
 
 Make sure the starter is ready to use by doing the Float Test.   Pour a spoonful into the water,if it floats, you're ready to make bread!  If not - it's back to the drawing board with your starter.  (Maybe ask a friend for advice.)
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p5.gif" alt="p5" style="zoom: 50%;" /><img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p6.gif" alt="p6" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p5.gif" alt="p5" style="zoom: 50%;" /><img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p6.gif" alt="p6" style="zoom:50%;" />
 
 Put starter in very large bowl.   Add spring water or filtered water. (Chlorinated tap water can kill the yeast.)  Mix thoroughly with whisk.  Take crappy photo.
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p7.gif" alt="p7" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p7.gif" alt="p7" style="zoom:50%;" />
 
 Slowly add flour, mixing as you go.   Mix with spoon at first, toward the end use bare hand.   (Wet your hand first w/ cold water to minimize sticking.)  Don't add the salt, we won't do that til much later.
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p8.gif" alt="p8" style="zoom:50%;" /><img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p10.gif" alt="p10" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p8.gif" alt="p8" style="zoom:50%;" /><img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p10.gif" alt="p10" style="zoom:50%;" />
 
 
 
 The final result should be just goopy enough that it can be poured, very slowly like honey.    If yours doesn't do that, adjust with more water or more flour.
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p11.gif" alt="p11" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p11.gif" alt="p11" style="zoom:50%;" />
 
 Cover with a towel and let sit on counter for an hour.   
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p1.gif" alt="p1" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p1.gif" alt="p1" style="zoom:50%;" />
 
 
 
@@ -58,7 +58,7 @@ Plunge a spoon or hand into the dough, and give it a good upward stretch.  (Two 
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p21.gif" alt="p21" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p21.gif" alt="p21" style="zoom:50%;" />
 
 
 
@@ -68,49 +68,49 @@ OK!  Nothing for you to do as the yeast comes on the job for an 8 hour shift.  J
 
 8 hours later,the dough should be showing large bubbles just under the surface.   (If it isn't, try giving it some more time.)
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p22.gif" alt="p22" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p22.gif" alt="p22" style="zoom:50%;" />
 
 Scatter 1 tablespoon of salt on top and work in very thoroughly with bare hands.  Dough will become 'punched down' (lose its volume from the rise.)   
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p23.gif" alt="p23" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p23.gif" alt="p23" style="zoom:50%;" />
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p24.gif" alt="p24" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p24.gif" alt="p24" style="zoom:50%;" />
 
 
 
 Cover again with towel and wait 1-2 hours.  You should notice bubbles starting to reappear.
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p25.gif" alt="p25" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p25.gif" alt="p25" style="zoom:50%;" />
 
 Time to bake!   Grab a bread-pan.   Preheat oven to 500.   Line bread-pan with parchment paper.   (You can use tinfoil instead if necessary.)  Cut two pieces of parchment to fit like so :
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p26.gif" alt="p26" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p26.gif" alt="p26" style="zoom:50%;" />
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/pxx.gif" alt="pxx" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/pxx.gif" alt="pxx" style="zoom:50%;" />
 
 
 
 Pour all the dough in.   It'll only fill 1/3-1/2 way, that's OK.   It's about to spring up like crazy.
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p27.gif" alt="p27" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p27.gif" alt="p27" style="zoom:50%;" />
 
 Use a baking sheet as a cover for the breadpan.  Put covered breadpan in oven for 10 minutes.  Remove cover - you'll see the dough has risen.   
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p28.gif" alt="p28" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p28.gif" alt="p28" style="zoom:50%;" />
 
 Bake another 20 minutes with cover off.   Take breadpan out of oven, remove loaf.  Lift off the parchment paper. 
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p30.gif" alt="p30" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p30.gif" alt="p30" style="zoom:50%;" />
 
 Lower oven temperature to 450 degrees.   Place loaf directly on rack.  
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p31.gif" alt="p31" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p31.gif" alt="p31" style="zoom:50%;" />
 
 The crust will start to darken.    Keep checking back until you've got a rich, deep brown color.  About 15-25 minutes.
 
@@ -120,7 +120,7 @@ The crust will feel solid as concrete when the bread first comes out.  Not to wo
 
 
 
-<img width=400 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p32.gif" alt="p32" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p32.gif" alt="p32" style="zoom:50%;" />
 
 After a couple of hours, when you can comfortably handle the bread in your hands, it's ready to eat!
 
