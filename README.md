@@ -9,7 +9,7 @@ To my amazement it came out perfectly.    Repeated trials revealed it was no flu
 # Pale Horse Sourdough Bread recipe.
 
 * Sourdough starter from fridge  130 grams               (2/3 cup by volume)
-* Spring water  							   345 grams
+* Spring water  							   345 grams             (1 1/2 cups by volume)
 * Flour  											 460 grams               (3 1/4 cups by volume)
 
 * Salt   2 1/2 teaspoons
