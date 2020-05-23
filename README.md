@@ -2,9 +2,9 @@ This recipe was created out of necessity during the pandemic.  I'm not much of a
 
 I tried all sorts of things like using a water pan, trying to make a Dutch Oven, different temperatures and so on.   Nothing worked.
 
-Then I stumbled upon this technique when I fell asleep while making bread.   After an 8 hour dozing, I figured the bread was ruined.   I didn't want to waste precious dough, though, so I went ahead on the off-chance the result wasn't a total waste.
+Then I stumbled upon this technique when I fell asleep while making bread.   After an 8 hour dozing, I figured the bread was ruined.   I didn't want to waste precious flour, though, so I went ahead on the off-chance the result wasn't a total waste.
 
-To my amazement it came out perfectly.    Repeated trials revealed it was no fluke, it comes out awesome every time.  I considered it my civic duty to write it up and share it with a world locked down in quarantine.
+To my amazement it came out perfectly.    Repeated trials revealed it was no fluke, it comes out awesome every time.  I considered it my civic duty to write it up and share it with a world quarantine lock-down.
 
 # Pale Horse Sourdough Bread recipe.
 
