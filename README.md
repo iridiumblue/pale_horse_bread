@@ -70,7 +70,7 @@ OK!  Nothing for you to do as the yeast comes on the job for an 8 hour shift.  J
 
 <img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p22.gif" alt="p22" style="zoom:50%;" />
 
-Scatter 1 tablespoon of salt on top and work in very thoroughly with bare hands.  Dough will become 'punched down' (lose its volume from the rise.)   
+Scatter salt on top and work in very thoroughly with bare hands.  Dough will become 'punched down' (lose its volume from the rise.)   
 
 <img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p23.gif" alt="p23" style="zoom:50%;" />
 
