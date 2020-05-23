@@ -100,7 +100,7 @@ Pour all the dough in.   It'll only fill 1/3-1/2 way, that's OK.   It's about to
 
 Use a baking sheet as a cover for the breadpan.  Put covered breadpan in oven for 10 minutes.  
 
-<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/pr.gif" alt="pr" style="zoom:50%;" />
+<img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/pr.jpg" alt="pr" style="zoom:50%;" />
 
 Remove cover - you'll see the dough has risen.   
 
