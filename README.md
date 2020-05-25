@@ -1,4 +1,4 @@
-This recipe was created out of necessity during the pandemic.  I'm not much of a baker, and I found bread-making to be a very glitchy and uncertain process.  Sometimes it would come out dense as concrete or wouldn't rise at all.   Other times it would be soft and mushy.   Occasionally it would come out OK but then I couldn't duplicate the feat.
+This recipe was created out of necessity during the pandemic.  I'm not much of a baker, and I found bread-making to be a very glitchy and uncertain process.  Sometimes it would come out dense as concrete or wouldn't rise at all.   Other times it would be wet and mushy.   Occasionally it would come out OK but then I couldn't duplicate the feat.
 
 I tried all sorts of things like using a water pan, trying to make a Dutch Oven, different temperatures and so on.   Nothing worked.
 
