@@ -81,6 +81,7 @@ Scatter salt on top and work in very thoroughly with bare hands.  Dough will bec
 
 
 Cover again with towel and wait 1-2 hours.  You should notice bubbles starting to reappear.
+*Added : I found that giving this step 2-3 hours, while raising the dough temperature to 80's, gives a less dense, softer texture.
 
 <img height=300 src="https://github.com/iridiumblue/pale_horse_bread/blob/master/gif/p25.gif" alt="p25" style="zoom:50%;" />
 
